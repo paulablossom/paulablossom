@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Paula/Pau! 👩
 - 👀 I’m interested in k-drama's📺, rom-com💻, swimming🏊‍♂️, cartoons🐷, movies📺, badminton🏸 😭
 - 🌱 I’m currently learning - Volleyball🏐, Table tennis🎾, Japanese🎌, and painting🎨
-- 💞️ I’m looking to collaborate on - I really don't know 😿
+- 💞️ I’m looking to collaborate on - don't know 😿
 - 📫 How to reach me - Discord, Insta, Messenger, Whatsapp, Wechat 🤳
 - 😄 Pronouns: she/her 🌸
 - ⚡ Fun fact: - I used to be scared of coffins 😭 
